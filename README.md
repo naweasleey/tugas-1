@@ -1,1 +1,1 @@
-Tugas 1
+Tugas 2 Naily Rina Pribawa
